@@ -10,6 +10,7 @@ Born is establishing itself as a leader in consumer AI by building virtual frien
 
 Since launching in 2022, Born has released five #1 global social apps. Its flagship AI character, Pengu—raised, played with, and even “co-parented” by friends and family—has reached more than 15 million users globally, becoming the biggest AI character app with its own IP in the US. Born has now raised $25M to cement its position as leader in consumer AI by creating companions that feel alive, grow with users, and fit into daily life—moving beyond chatbot experiences toward social, emotionally resonant, and culturally relevant AI friends.
 
+[Join Us](https://join.com/companies/slay) 
 
-[born.com](born.com)
+[born.com](born.com)   
 
