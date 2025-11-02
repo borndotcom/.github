@@ -1,6 +1,6 @@
 ![Cover-21](https://github.com/user-attachments/assets/45690bd5-ee20-4f3f-9c2b-a3db184a6a22)
 
-Born creates AI friends—companions that enter people’s lives at the right moment and stay for a lifetime. These friends are always there when needed most, making conversations, play, and connection fun. At the intersection of AI and consumer social, Born is building experiences that feel natural, joyful, and lasting.
+Born creates AI friends — friends that enter people’s lives at the right moment and stay for a lifetime. These friends are always there when needed most, making conversations, play, and connection fun. At the intersection of AI and consumer social, Born is building experiences that feel natural, joyful, and lasting.
 
 The new funding will accelerate Born’s product roadmap and hiring of top consumer AI talent. This includes opening a US office in New York, scaling new characters for Pengu, and launching a new social AI product currently seeing strong traction in stealth.
 
